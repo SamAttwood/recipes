@@ -8,7 +8,7 @@
 
 1 tsp of paprika
 
-1 lemon
+1/2 lemon (use the other half as a garnish)
 
 2 large potatoes/4 smaller potatoes
 

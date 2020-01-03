@@ -21,8 +21,8 @@ Drizzle of vegetable oil
 ## Steps
 
 1. Peel potatoes.
-2. Chop potatoes.
-3. Put the peeled and chopped potatoes onto boil for 10-15 minutes.
+2. Chop potatoes into chunks.
+3. Put the peeled and chopped potatoes onto boil for ~15 minutes.
 4. Whilst the potatoes are boiling, put vegetable oil, thyme, paprika, salt, pepper and the juice of 1/2 a lemon into a baking dish and mix together.
 5. Use a colander to drain the potatoes.
 6. Put the potatoes into the baking dish and cover them with the oily mixture.

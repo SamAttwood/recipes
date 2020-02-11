@@ -4,9 +4,9 @@
 
 ## Ingredients
 
-1 tsp of thyme
+1-2 tsp of thyme/oregano/basil (either one in particular or a mix, both is fine)
 
-1 tsp of paprika
+1-2 tsp of paprika
 
 1/2 lemon (use the other half as a garnish)
 
